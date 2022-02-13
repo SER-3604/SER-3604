@@ -4,4 +4,4 @@ How neat is that?
 
 **...**
 
-No, really how neat is that?
+No really, how neat is that?
